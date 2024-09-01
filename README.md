@@ -1,4 +1,4 @@
-# Hi there ✨ I'm Julia B.Grenier (she/her)
+# ✨ Hi I'm Julia B.Grenier (she/her)✨
 ### Welcome to my GitHub!
 
 #### 💻I love building apps and games that make life easier or more fun!
